@@ -12,4 +12,4 @@ also advising: [sevenco](https://www.sevenco.in), [ohpop](https://www.instagram.
 
 ## contact (say hi)
 
-you can find me on [X](https://x.com/ayushhh_10) or [Telegram](https://t.me/Ayushhsr10) — or email me at [vksrsayush@gmail.com](https://t.me/Ayushhsr10) 
+you can find me on [X](https://x.com/ayushhh_10) or [Telegram](https://t.me/Ayushhsr10) - or email me at [vksrsayush@gmail.com](https://t.me/Ayushhsr10) 
