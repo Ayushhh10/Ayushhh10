@@ -4,6 +4,9 @@ i'm a growth marketer who's spent years on the internet building products, obses
 
 [my website](https://ayushhh.xyz)
 
+[proof of work](https://ayushhh.xyz/proofofwork)
+
+
 ## work
 
 i wrapped up almost a year at [propaganda](https://x.com/propagandabuild) - worked with 10+ clients and a few in-house products on gtm strategy, marketing campaigns, growth hacks, copywriting, socials, design and ugc. 
