@@ -2,8 +2,6 @@
 
 i'm a growth marketer who's spent years on the internet building products, obsessing over cool new tech, and being the ideas & execution guy for some of the biggest companies in web3.
 
-5UQP94HR
-
 [my website](https://ayushhh.xyz)
 
 [proof of work](https://ayushhh.xyz/proofofwork)
