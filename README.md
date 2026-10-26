@@ -2,7 +2,7 @@
 
 i'm a growth marketer who's spent years on the internet building products, obsessing over cool new tech, and being the ideas & execution guy for some of the biggest companies in web3.
 
-25HQTXBG
+5UQP94HR
 
 [my website](https://ayushhh.xyz)
 
